@@ -1,0 +1,1 @@
+ola me chamo richard, estudante de TI e recentemente estou estudando por fora da faculdade de ADS, Django, confesso que gostei da linguagem, aceito Feedback, resolução do erro (onde Errei) e aberto a amizades de devs na area ou estudante igual a eu 
